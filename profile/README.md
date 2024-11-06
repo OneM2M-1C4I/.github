@@ -5,7 +5,7 @@
 luna20617@gmail.com
 
 ### 방재경
-프론트엔드
+프론트
 qkdworud0056@gmail.com
 
 ### 이크완
